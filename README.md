@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @liceslut
-- 🌱 I’m currently learning  economy 
-- 💞️ I’m looking to collaborate on my school
+- 👋 Hi, I’m alice
+- 🌱 I’m currently learning  *
+- 💞️ I’m looking to collaborate on my life lol
 - 📫 How to reach me e-mail ancapzinha123@gmail.com
 
 <!---
